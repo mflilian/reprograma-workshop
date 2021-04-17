@@ -43,7 +43,7 @@ http://reprograma.com.br/workshops/workshop-backend.zip
 A apresentação é hiper, mega, blaster *opcional*. 
 
 A @cintiafumi preparou um conteúdo do amor, mas é apoio, sintam-se super a vontade para fazer o conteúdo de vocês, pessoas lindas:
-https://docs.google.com/presentation/d/17cssU8S2265J0BEjB1Je_0qVN-QZlGObeBgRhjf19g4/edit?usp=sharing
+https://docs.google.com/presentation/d/1lqGV7OwDETuTxMCt3O_yNZhtfgmg-R3QsLJ4kirI3SU/edit?usp=sharing
 
 ---
 
